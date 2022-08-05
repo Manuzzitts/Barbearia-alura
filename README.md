@@ -2,11 +2,7 @@
 
 ▪ 🙂Olá pessoal, sou Emanuelle estudante do Colegio Carmelina
 
-
-
 ▪ 💻gosto de aprender sobre progamação
-
-
 
 ▪ ✨gostaria de aprimorar mais minhas habilidades
 
